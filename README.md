@@ -1,5 +1,3 @@
-"# Evidence-of-Excellence-photos" 
-
 # Evidence of Excellence – Charles Deakins
 
 **Context:**  
